@@ -36,11 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶The fyfte Eglog of Alexandre Barclay of
-the Cytezen and vplondyshman.
-¶Here
-after foloweth the
-ProlIN colde Ianuary / whan fyre is comfortableAnd that the feldes / be nere intollerableWhan shepe & pa
+IN colde Ianuary / whan fyre is comfortableAnd that the feldes / be nere intollerableWhan shepe & pa
 #####Body#####
 ¶Interlocutoures be Amyntas and Faustus.
 Amyntasfyrste speketh.THe wynter snowes / all couered is th
